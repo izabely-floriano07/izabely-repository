@@ -4,6 +4,5 @@
 - Percystente
 - Stay
 
-  ## 🦭 Não sei programar direito
-
-  ![](https://media.tenor.com/VXKFzyXFJRcAAAAM/sanrio-my.gif)
+  ## 🦭 Usarei o GitHub para depositar meus projetos das aulas de Pensamento Computacional
+ ![](https://media.tenor.com/kQj_q4GqgTIAAAAi/chuu-coquette.gif)
