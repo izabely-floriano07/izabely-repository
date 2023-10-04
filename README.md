@@ -1,3 +1,4 @@
+♡₊˚ 🦢・₊✧ 
 ## 🎀 Estudante 
 
 - Meu nome é Izabely Floriano Dobocz
